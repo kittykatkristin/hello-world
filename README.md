@@ -1,2 +1,3 @@
 # hello-world
 Love to keep chatting but...
+My name is Kristin. I like sushi, but I love peppermints. 
